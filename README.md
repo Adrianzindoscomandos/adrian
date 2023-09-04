@@ -10,7 +10,7 @@ Meu nome é Adrian Miguel Schules
 
 ### Você pode entrar em contato comigo :mailbox
 
-adrianschules2018@gmail.comq
+adrianschules2018@gmail.com
 
 @adrianschules
 
